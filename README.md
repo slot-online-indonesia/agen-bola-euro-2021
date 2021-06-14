@@ -1,37 +1,14 @@
-## Welcome to GitHub Pages
+# Agen Bola Euro 2021
 
-You can use the [editor on GitHub](https://github.com/slot-online-indonesia/agen-bola-euro-2021/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+Pertandingan Bola Euro 2021 pada masa pandemi ini membuat semua pihak kewalahan. Akan tetapi ada situs [agen bola euro 2021](https://euromamacchine.com/pasar-sportsbook-euro-league-terlengkap-dan-terpercaya/) yang bisa memberikan kemudahan kepada anda untuk memasukan taruhan bola untuk euro 2021. 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Anda akan diberikan pelayanan terbaik dari customer service kami yang ramah dan juga membantu anda dalam menentukan pilihan yang tepat untuk menaruh uang anda di tim yang akan menang. 
 
-### Markdown
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+## Prediksi Bola Euro 2021
 
-```markdown
-Syntax highlighted code block
+Selain itu juga situs agen bola euro 2021 juga memberikan prediksi-prediksi pertandingan yang akan bermain di laga euro 2021. Customer service kami akan selalu menjawab segala pertanyaan anda dengan baik dan ramah 24 jam sehari 7 hari seminggu.
 
-# Header 1
-## Header 2
-### Header 3
+Kami juga memberikan tips dalam memprediksi sebuah pertandingan Liga Euro bisa Anda saksikan saat mencapai tahap penyisihan grup. Pastinya, dari penyisihan ini melibatkan tim yang kurang populer dan tim yang sering masuk babak gugur. Pada saat itulah, Anda bisa melihat rekor head to head sebelumnya dan data lainnya. Setelah itu, barulah prediksi pihak mana yang akan menang. Memang memprediksi dengan tepat tidak semudah berbicara. Bahkan sering tim besar yang sudah pernah masuk ke babak gugur harus berakhir tragis dikalahkan tim kecil. Namun, ketika sudah mencapai semifinal, memprediksi pihak mana yang menang merupakan hal yang sulit. Mungkin informasi dan statistik akan lebih membantu Anda dalam bertaruh sportsbook Liga Euro / Liga Eropa.
 
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/slot-online-indonesia/agen-bola-euro-2021/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Silahkan daftarkan diri anda di [situs resmi agen bola euro 2021](https://euromamacchine.com) untuk bisa memeriahkan euro 2021
